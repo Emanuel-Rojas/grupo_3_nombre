@@ -1,6 +1,6 @@
 > TEMATICA DEL MARKET PLACE:
 
-Producto ofrecido:
+Producto ofrecido: Indumentarias Personalizadas General  
 
 Publico al que esta dirigido:
 
